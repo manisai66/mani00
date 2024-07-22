@@ -1,0 +1,2 @@
+# mani00
+money
